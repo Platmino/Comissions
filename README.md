@@ -2,7 +2,7 @@
 * Streamable - 30$-100$ depending on the features.
 * GUI - 40$-110$ depending on the features.
 * Custom Script - 5$-100$ depending on what it is.
-* Script for specific game - 40$-110$
+* Script for specific game - 40$-110$ depending on what it is.
 
 # Join
 https://discord.gg/7Hq8YFp6kQ
