@@ -7,5 +7,5 @@
 https://discord.gg/7Hq8YFp6kQ
 
 # Selling
-* Bullet TP for any fake dh game (BETA) - 150$-200$ price can be discussed
+* Bullet TP - NOT FOR SALE
 * Walkable Desync - 30$-50$ price can be discussed
